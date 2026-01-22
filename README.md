@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Zaid Bin Irfan
+# 👋 Hi, I'm Musab Bin Sohail
 
 🎓 **BBA Student** | 📊 Business & Management Enthusiast | 🚀 Aspiring Professional  
 
